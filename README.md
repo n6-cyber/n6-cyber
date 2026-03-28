@@ -4,6 +4,5 @@
 - 💞️ I’m making a RC plane, circuits and other robotics and other things
 - 📫 How to reach me X, Youtube, Discord.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: My favorite civilian aircraft is the Airbus A-380, but my favorite military aircraft is the JAS-39 Gripen.
-Oh, btw "Hello Odin!"
+- ⚡ Fun fact: My favorite civilian aircraft is the Airbus A-380, what can I say it's a cool plane
 
